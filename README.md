@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Binushi Madurapperumage, undergraduate at Uva Wellassa University, pursuing a degree in Industrial Information Technology.
+I'm Binushi Nayanathara, undergraduate at Uva Wellassa University, pursuing a degree in Industrial Information Technology.
 
 
 ## 🌐 Socials:
